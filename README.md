@@ -1,1 +1,0 @@
-# HexoShokaBolgsite.github.io
